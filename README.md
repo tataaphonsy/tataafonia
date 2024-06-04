@@ -10,5 +10,5 @@ Meu nome é tataphonsy
 
 - tataaphonsy@gmail.com
 
-![](https://tenor.com/pt-BR/view/afonsinha-gif-20797898)
+![](https://tenor.com/pt-BR/view/good-tuesday-morning-gif-9317468782653701848)
 
