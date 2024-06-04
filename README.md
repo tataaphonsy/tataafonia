@@ -10,5 +10,5 @@ Meu nome é tataphonsy
 
 - tataaphonsy@gmail.com
 
-https://tenor.com/pt-BR/view/computador-afonsinha-gif-20508355
+!![image](https://github.com/tataaphonsy/tataafonia/assets/171164207/496c48b6-268f-40b7-9167-e2eede439d29)
 
