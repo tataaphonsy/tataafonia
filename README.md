@@ -9,5 +9,4 @@ Meu nome é tataphonsy
 - ### Você pode entrar em contato comigo 📬
 
 - tataaphonsy@gmail.com
-
 ![](https://tenor.com/pt-BR/view/afonsinha-gif-20797898)
