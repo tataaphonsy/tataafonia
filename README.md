@@ -10,4 +10,4 @@ Meu nome é tataphonsy
 
 - tataaphonsy@gmail.com
 
-![](https://tenor.com/pt-BR/view/afonsinha-dance-wavy-gif-17537821)
+![](https://tenor.com/pt-BR/view/afonsinha-gif-20797898)
